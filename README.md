@@ -1,0 +1,1 @@
+# bitcan-diario-edicao-3
